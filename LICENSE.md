@@ -1,4 +1,4 @@
-# 
+# Nativo MEV sniper bot extensões para Mac OS | Gratuito MEV sniper bot extensões para PC Windows. Com execução de ordens e gerenciamento de chaves privadas — otimizado para máximo desempeño en cada plataforma.
 
 
 
